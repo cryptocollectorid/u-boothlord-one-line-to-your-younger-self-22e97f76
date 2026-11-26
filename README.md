@@ -10,7 +10,7 @@ An entry for the [make.fun](https://make.fun/bounty/u-boothlord-one-line-to-your
 
 > Kid, stop rehearsing what you'll say to her in the mirror — she marries the guy who just walks over, and your knees quit at thirty.
 
-(116 characters, inside the 1–200 gate.)
+(131 characters, inside the 1–200 gate.)
 
 ## Run
 
